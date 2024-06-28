@@ -8,7 +8,7 @@
 
 🍃 . A silly invitation to our discord rp-server ! , the server is still under maintenance, so roleplay's still won't start ! please be patient , and make sure to verify yourselves to gain access to the server !
 
-**ֺ ༊彡⬭` 🔱 ` 𓈒  ݁       ．     ⎯   ꒰ ` ⚜️ ` ꒱ ࣪𓂂 ׅ          ．        `  🔱  `꒱࿐ ִ ۫⎯**
+*ֺ ༊彡⬭` 🔱 ` 𓈒  ݁       ．     ⎯   ꒰ ` ⚜️ ` ꒱ ࣪𓂂 ׅ          ．        `  🔱  `꒱࿐ ִ ۫⎯*
   ׅ  
 
 
@@ -18,10 +18,10 @@
 
        `                      🌊                      `
 
-                ‎                    Would you _accept_ it....?
+                ‎                    Would you accept it....?
 
                           ` 🕊️ `  ⎯      ` 🌌 `     ⎯    ` ♟️ ` 
-                 ‎      _sfw_   ⎯    _sys friend_ly  ⎯    rp multiverse
+                 ‎       sfw  ⎯    sys friendly  ⎯    rp multiverse
 
 
 
