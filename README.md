@@ -1,1 +1,3 @@
 ![App SCreenshot](https://media.discordapp.net/attachments/1149701616392470650/1255724876602409101/nahida_transparent_divider3.png?ex=667f7dec&is=667e2c6c&hm=be8e1da7ec6d36b3bbe4f3f0d5fed09b4f5a42536766b6aeb05b48cefba34b01&=&format=webp&quality=lossless) ![App Screenshot](https://media.discordapp.net/attachments/1149701616392470650/1255724876602409101/nahida_transparent_divider3.png?ex=667f7dec&is=667e2c6c&hm=be8e1da7ec6d36b3bbe4f3f0d5fed09b4f5a42536766b6aeb05b48cefba34b01&=&format=webp&quality=lossless)
+
+![App SCreenshot](https://media.discordapp.net/attachments/1149701616392470650/1255724878456291409/transparent_sticker_nahida5.webp?ex=667f7ded&is=667e2c6d&hm=96453085be7d0e91104ee3097a6b014b7e453974d0ed050563f1120ebe985ca8&=&format=webp&width=442&height=571)
