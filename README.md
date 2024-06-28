@@ -26,4 +26,5 @@
 
 
   ׅ  *ֺ ༊彡⬭` 🔱 ` 𓈒  ݁       ．     ⎯   ꒰ ` ⚜️ ` ꒱ ࣪𓂂 ׅ          ．        `  🔱  `꒱࿐ ִ ۫⎯
+https://media.discordapp.net/attachments/1129681331417260102/1238790412571770920/Untitled78_20240511175001.png?ex=667f3039&is=667ddeb9&hm=195d383ef0555e6bb43669d4eb6552a43d993023c4fe81565791ffe68eb6f284&=&format=webp&quality=lossless
 
