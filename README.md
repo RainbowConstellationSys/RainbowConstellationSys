@@ -1,7 +1,6 @@
 
 
-*ֺ ༊彡⬭` 🔱 ` 𓈒  ݁       ．     ⎯   ꒰ ` ⚜️ ` ꒱ ࣪𓂂 ׅ          ．        `  🔱  `꒱࿐ ִ ۫⎯*
-  ׅ  
+
 
 ![App Screenshot](https://media.discordapp.net/attachments/1149701616392470650/1254341806951370863/wave_divider.gif?ex=66865357&is=668501d7&hm=5b38bff44faff475fc165359397c69b8c0327f23413e92f167593dc82d9c53d8&=&width=450&height=12)![App Screenshot](https://media.discordapp.net/attachments/1149701616392470650/1254341806951370863/wave_divider.gif?ex=66865357&is=668501d7&hm=5b38bff44faff475fc165359397c69b8c0327f23413e92f167593dc82d9c53d8&=&width=450&height=12)
   ‎                                                                                                                                                                                                                      
@@ -11,6 +10,9 @@
 🌲 . Check out our carrd to know more about my alters , and co-host ! > https://rainbowconstellationsys.carrd.co <  , and also check out host's carrd !! > https://sillysintromelaniethemed.carrd.co < , and feel free to int ! i/we don't bite, but i/we may be awkward if you approach me/us and don't have the same rumor as me/us !! but if you do, i/we will still take time to be comf around you !
 
 ‎            ![App Screenshot](https://media.discordapp.net/attachments/1149701616392470650/1255724876602409101/nahida_transparent_divider3.png?ex=667f7dec&is=667e2c6c&hm=be8e1da7ec6d36b3bbe4f3f0d5fed09b4f5a42536766b6aeb05b48cefba34b01&=&format=webp&quality=lossless)![app screenshot](https://media.discordapp.net/attachments/1149701616392470650/1255724876602409101/nahida_transparent_divider3.png?ex=667f7dec&is=667e2c6c&hm=be8e1da7ec6d36b3bbe4f3f0d5fed09b4f5a42536766b6aeb05b48cefba34b01&=&format=webp&quality=lossless)
+
+*ֺ ༊彡⬭` 🔱 ` 𓈒  ݁       ．     ⎯   ꒰ ` ⚜️ ` ꒱ ࣪𓂂 ׅ          ．        `  🔱  `꒱࿐ ִ ۫⎯*
+  ׅ  
 
 🍃 . A silly invitation to our discord rp-server ! , the server is still under maintenance, so roleplay's still won't start ! please be patient , and make sure to verify yourselves to gain access to the server !
 
