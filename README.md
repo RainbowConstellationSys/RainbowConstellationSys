@@ -9,7 +9,7 @@
  ‎   🌿 . This account is actually for my system alters, but they don't really use it so i'm mainly online in this account, co-host also use this too !! - Host
 🌲 . Check out our carrd to know more about my alters , and co-host ! > https://rainbowconstellationsys.carrd.co <  , and also check out host's carrd !! > https://sillysintromelaniethemed.carrd.co < , and feel free to int ! i/we don't bite, but i/we may be awkward if you approach me/us and don't have the same rumor as me/us !! but if you do, i/we will still take time to be comf around you !
 
-‎            ![App Screenshot](https://media.discordapp.net/attachments/1149701616392470650/1255724876602409101/nahida_transparent_divider3.png?ex=667f7dec&is=667e2c6c&hm=be8e1da7ec6d36b3bbe4f3f0d5fed09b4f5a42536766b6aeb05b48cefba34b01&=&format=webp&quality=lossless)![app screenshot](https://media.discordapp.net/attachments/1149701616392470650/1255724876602409101/nahida_transparent_divider3.png?ex=667f7dec&is=667e2c6c&hm=be8e1da7ec6d36b3bbe4f3f0d5fed09b4f5a42536766b6aeb05b48cefba34b01&=&format=webp&quality=lossless)
+‎            ![App Screenshot](https://media.discordapp.net/attachments/1149701616392470650/1254341809203581038/flower_divider.gif?ex=668c4217&is=668af097&hm=5a963dee39e0453de5467b3565731291f8159c8cccedc7ce1e0f3d1b5f1b0d88&=&width=567&height=75)![app screenshot](https://media.discordapp.net/attachments/1149701616392470650/1255724876602409101/nahida_transparent_divider3.png?ex=667f7dec&is=667e2c6c&hm=be8e1da7ec6d36b3bbe4f3f0d5fed09b4f5a42536766b6aeb05b48cefba34b01&=&format=webp&quality=lossless)
 
 *ֺ ༊彡⬭` 🔱 ` 𓈒  ݁       ．     ⎯   ꒰ ` ⚜️ ` ꒱ ࣪𓂂 ׅ          ．        `  🔱  `꒱࿐ ִ ۫⎯*
   ׅ  
