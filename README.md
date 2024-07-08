@@ -32,5 +32,5 @@
 https://discord.gg/q2yQjkYSKv
 
   ׅ  *ֺ ༊彡⬭` 🔱 ` 𓈒  ݁       ．     ⎯   ꒰ ` ⚜️ ` ꒱ ࣪𓂂 ׅ          ．        `  🔱  `꒱࿐ ִ ۫⎯
-![app screenshot](https://media.discordapp.net/attachments/1129681331417260102/1238790412571770920/Untitled78_20240511175001.png?ex=667f3039&is=667ddeb9&hm=195d383ef0555e6bb43669d4eb6552a43d993023c4fe81565791ffe68eb6f284&=&format=webp&quality=lossless)
+![App Screenshot](https://media.discordapp.net/attachments/1129681331417260102/1238790412571770920/Untitled78_20240511175001.png?ex=668c5f39&is=668b0db9&hm=7ca2ef2faf49429eefc9b2a64ca26583afef37a6a7cb0b35815a3d5191e5f6bd&=&format=webp&quality=lossless&width=1189&height=478)
 
