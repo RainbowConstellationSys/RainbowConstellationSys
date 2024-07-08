@@ -21,12 +21,12 @@
 # The _heavenly_ crew _had_ called upon you for an invitation.  
 ׅ
 
-                                                                         🌊                      
+                                                             🌊                      
 
-   Would you [accept](https://discord.gg/q2yQjkYSKv) it....? 
+    
             
-                                  🕊️   ⎯       🌌      ⎯     ♟️  
-                            sfw  ⎯    sys friendly  ⎯    rp multiverse
+                                               🕊️   ⎯       🌌      ⎯     ♟️  
+                                          sfw  ⎯    sys friendly  ⎯    rp multiverse
 
 
   ׅ  *ֺ ༊彡⬭` 🔱 ` 𓈒  ݁       ．        ꒰ ` ⚜️ ` ꒱ ࣪𓂂 ׅ          ．        `  🔱  `꒱࿐ ִ ۫
