@@ -11,6 +11,7 @@
 
 ![App Screenshot](https://media.discordapp.net/attachments/1149701616392470650/1254341806435340349/greenie_divider.gif?ex=668c4217&is=668af097&hm=f87e71f23d0bd14a8f383b72166e94b5e59f7a83c4882ad8cfb9ff469876b026&=&width=450&height=12)![App Screenshot](https://media.discordapp.net/attachments/1149701616392470650/1254341806435340349/greenie_divider.gif?ex=668c4217&is=668af097&hm=f87e71f23d0bd14a8f383b72166e94b5e59f7a83c4882ad8cfb9ff469876b026&=&width=450&height=12)
 ‎            ![App Screenshot](https://media.discordapp.net/attachments/1149701616392470650/1254341808159199332/green_rose_divider.webp?ex=668c4217&is=668af097&hm=a3f2e7ff125a83917218bac32ad02435d9e562c02ad85e8eaaff5e2939f6021f&=&format=webp&width=1350&height=450)
+![App Screenshot](https://media.discordapp.net/attachments/1149701616392470650/1254341806951370863/wave_divider.gif?ex=668c4217&is=668af097&hm=9798698343eaf3d51aaa75819348b1b960c9438ed5957d7e6bed3050eb895ff8&=&width=450&height=12)![App Screenshot](https://media.discordapp.net/attachments/1149701616392470650/1254341806951370863/wave_divider.gif?ex=668c4217&is=668af097&hm=9798698343eaf3d51aaa75819348b1b960c9438ed5957d7e6bed3050eb895ff8&=&width=450&height=12)
 
 *ֺ ༊彡⬭` 🔱 ` 𓈒  ݁       ．     ⎯   ꒰ ` ⚜️ ` ꒱ ࣪𓂂 ׅ          ．        `  🔱  `꒱࿐ ִ ۫⎯*
   ׅ  
