@@ -9,7 +9,7 @@
  ‎   🌿 . This account is actually for my system alters, but they don't really use it so i'm mainly online in this account, co-host also use this too !! - Host
 🌲 . Check out our carrd to know more about my alters , and co-host ! > https://rainbowconstellationsys.carrd.co <  , and also check out host's carrd !! > https://sillysintromelaniethemed.carrd.co < , and feel free to int ! i/we don't bite, but i/we may be awkward if you approach me/us and don't have the same rumor as me/us !! but if you do, i/we will still take time to be comf around you !
 
-‎            ![App Screenshot](https://media.discordapp.net/attachments/1149701616392470650/1254341807349698560/nahida_divider.webp?ex=668c4217&is=668af097&hm=a6794ed15072a0413ab69e2d4762db3a4364ddce3c7231df3df6aeed4dec8928&=&format=webp&width=1350&height=450)
+‎            ![App Screenshot](https://media.discordapp.net/attachments/1149701616392470650/1254341808159199332/green_rose_divider.webp?ex=668c4217&is=668af097&hm=a3f2e7ff125a83917218bac32ad02435d9e562c02ad85e8eaaff5e2939f6021f&=&format=webp&width=1350&height=450)
 
 *ֺ ༊彡⬭` 🔱 ` 𓈒  ݁       ．     ⎯   ꒰ ` ⚜️ ` ꒱ ࣪𓂂 ׅ          ．        `  🔱  `꒱࿐ ִ ۫⎯*
   ׅ  
