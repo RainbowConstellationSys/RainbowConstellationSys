@@ -24,12 +24,12 @@
 
        `                      🌊                      `
 
-                ‎                    Would you accept it....?
+  Would you [accept](https://discord.gg/q2yQjkYSKv) it....?
 
-                          ` 🕊️ `  ⎯      ` 🌌 `     ⎯    ` ♟️ ` 
+                       ` 🕊️ `  ⎯      ` 🌌 `     ⎯    ` ♟️ ` 
                  ‎       sfw  ⎯    sys friendly  ⎯    rp multiverse
 
-https://discord.gg/q2yQjkYSKv
+
 
   ׅ  *ֺ ༊彡⬭` 🔱 ` 𓈒  ݁       ．     ⎯   ꒰ ` ⚜️ ` ꒱ ࣪𓂂 ׅ          ．        `  🔱  `꒱࿐ ִ ۫⎯
 ![App Screenshot](https://media.discordapp.net/attachments/1129681331417260102/1238790412571770920/Untitled78_20240511175001.png?ex=668c5f39&is=668b0db9&hm=7ca2ef2faf49429eefc9b2a64ca26583afef37a6a7cb0b35815a3d5191e5f6bd&=&format=webp&quality=lossless&width=1189&height=478)
