@@ -19,6 +19,7 @@
 🍃 . A silly invitation to our discord rp-server ! , the server is still under maintenance, so roleplay's still won't start ! please be patient , and make sure to verify yourselves to gain access to the server !
 
 # The _heavenly_ crew _had_ called upon you for an invitation.  
+   Would you [accept](https://discord.gg/q2yQjkYSKv) it....?
 ׅ
 
                                                              🌊                      
