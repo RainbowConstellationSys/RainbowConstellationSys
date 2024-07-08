@@ -13,7 +13,7 @@
 ‎            ![App Screenshot](https://media.discordapp.net/attachments/1149701616392470650/1254341808159199332/green_rose_divider.webp?ex=668c4217&is=668af097&hm=a3f2e7ff125a83917218bac32ad02435d9e562c02ad85e8eaaff5e2939f6021f&=&format=webp&width=1350&height=450)
 ![App Screenshot](https://media.discordapp.net/attachments/1149701616392470650/1254341806951370863/wave_divider.gif?ex=668c4217&is=668af097&hm=9798698343eaf3d51aaa75819348b1b960c9438ed5957d7e6bed3050eb895ff8&=&width=450&height=12)![App Screenshot](https://media.discordapp.net/attachments/1149701616392470650/1254341806951370863/wave_divider.gif?ex=668c4217&is=668af097&hm=9798698343eaf3d51aaa75819348b1b960c9438ed5957d7e6bed3050eb895ff8&=&width=450&height=12)
 
- ֺ              ༊彡⬭` 🔱 ` 𓈒  ݁       ．        ꒰ ` ⚜️ ` ꒱ ࣪𓂂 ׅ          ．        `  🔱  `꒱࿐ ִ ۫⎯
+༊彡⬭` 🔱 ` 𓈒  ݁       ．        ꒰ ` ⚜️ ` ꒱ ࣪𓂂 ׅ          ．        `  🔱  `꒱࿐ ִ ۫⎯*ֺ ༊彡⬭` 🔱 ` 𓈒  ݁       ．        ꒰ ` ⚜️ ` ꒱ ࣪𓂂 ׅ          ．        `  🔱  `꒱࿐ ִ ۫ *ֺ ༊彡⬭` 🔱 ` 𓈒  ݁       ．        ꒰ ` ⚜️ ` ꒱ ࣪𓂂 ׅ          ．        `  🔱  `꒱࿐ ִ ۫
   ׅ  
 
 🍃 . A silly invitation to our discord rp-server ! , the server is still under maintenance, so roleplay's still won't start ! please be patient , and make sure to verify yourselves to gain access to the server !
@@ -30,6 +30,6 @@
                                           sfw  ⎯    sys friendly  ⎯    rp multiverse
 
  
-  ׅ                              *ֺ ༊彡⬭` 🔱 ` 𓈒  ݁       ．        ꒰ ` ⚜️ ` ꒱ ࣪𓂂 ׅ          ．        `  🔱  `꒱࿐ ִ ۫
+*ֺ ༊彡⬭` 🔱 ` 𓈒  ݁       ．        ꒰ ` ⚜️ ` ꒱ ࣪𓂂 ׅ          ．        `  🔱  `꒱࿐ ִ ۫  *ֺ ༊彡⬭` 🔱 ` 𓈒  ݁       ．        ꒰ ` ⚜️ ` ꒱ ࣪𓂂 ׅ          ．        `  🔱  `꒱࿐ ִ ۫  *ֺ ༊彡⬭` 🔱 ` 𓈒  ݁       ．        ꒰ ` ⚜️ ` ꒱ ࣪𓂂 ׅ          ．        `  🔱  `꒱࿐ ִ ۫
 ![App Screenshot](https://media.discordapp.net/attachments/1129681331417260102/1238790412571770920/Untitled78_20240511175001.png?ex=668c5f39&is=668b0db9&hm=7ca2ef2faf49429eefc9b2a64ca26583afef37a6a7cb0b35815a3d5191e5f6bd&=&format=webp&quality=lossless&width=1189&height=478)
 
