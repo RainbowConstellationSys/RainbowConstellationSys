@@ -9,7 +9,7 @@
  ‎   🌿 . This account is actually for my system alters, but they don't really use it so i'm mainly online in this account, co-host also use this too !!
 🌲 . Check out our [Carrd](https://rainbowconstellationsys.carrd.co) to know more about my alters , and co-host ! , and also check out host's [Carrd](https://sillysintromelaniethemed.carrd.co) ! , feel free to int ! i/we don't bite, but i/we may be awkward if you approach me/us and don't have the same rumor as me/us !! but if you do, i/we will still take time to be comf around you !
 
-![App Screenshot](https://64.media.tumblr.com/9f7a24fa5069b44c560c975d85c66847/9e50215eb404bc61-4f/s2048x3072/83ae654d3a8f3220ddd29d87854c7911e82e1dc9.pnj)(https://media.discordapp.net/attachments/1149701616392470650/1254341806951370863/wave_divider.gif?ex=668c4217&is=668af097&hm=9798698343eaf3d51aaa75819348b1b960c9438ed5957d7e6bed3050eb895ff8&=&width=450&height=12)
+![App Screenshot](https://64.media.tumblr.com/9f7a24fa5069b44c560c975d85c66847/9e50215eb404bc61-4f/s2048x3072/83ae654d3a8f3220ddd29d87854c7911e82e1dc9.pnj)
 
 ༊彡⬭` 🔱 ` 𓈒  ݁       ．        ꒰ ` ⚜️ ` ꒱ ࣪𓂂 ׅ          ．        `  🔱  `꒱࿐ ִ ۫⎯*ֺ ༊彡⬭` 🔱 ` 𓈒  ݁       ．        ꒰ ` ⚜️ ` ꒱ ࣪𓂂 ׅ          ．        `  🔱  `꒱࿐ ִ ۫ *ֺ ༊彡⬭` 🔱 ` 𓈒  ݁       ．        ꒰ ` ⚜️ ` ꒱ ࣪𓂂 ׅ          ．        `  🔱  `꒱࿐ ִ ۫
   ׅ  
