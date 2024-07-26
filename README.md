@@ -2,7 +2,7 @@
 
 
 
-![App Screenshot](https://64.media.tumblr.com/fa876df6a151b65268d3199f94656eb9/b93bfb1fea0e2424-5a/s500x750/4b048089a72c1fa236599345324129d6de3c7b56.gifv)![App Screenshot](https://64.media.tumblr.com/fa876df6a151b65268d3199f94656eb9/b93bfb1fea0e2424-5a/s500x750/4b048089a72c1fa236599345324129d6de3c7b56.gifv)
+![App Screenshot](https://64.media.tumblr.com/fa876df6a151b65268d3199f94656eb9/b93bfb1fea0e2424-5a/s500x750/4b048089a72c1fa236599345324129d6de3c7b56.gifv)
   ‎                                                                                                                                                                                                                      
                 ‎   ⊰ ˙  ‎ ☘ .  ‎ She / her , They / them , Candy / bird . Pronouns ! (mainly she / her)
      ‎      🌱 . 4 / 13 
