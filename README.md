@@ -2,7 +2,7 @@
 
 
 
-![App Screenshot](https://media.discordapp.net/attachments/1149701616392470650/1254341806951370863/wave_divider.gif?ex=66865357&is=668501d7&hm=5b38bff44faff475fc165359397c69b8c0327f23413e92f167593dc82d9c53d8&=&width=450&height=12)![App Screenshot](https://media.discordapp.net/attachments/1149701616392470650/1254341806951370863/wave_divider.gif?ex=66865357&is=668501d7&hm=5b38bff44faff475fc165359397c69b8c0327f23413e92f167593dc82d9c53d8&=&width=450&height=12)
+![App Screenshot](https://64.media.tumblr.com/fa876df6a151b65268d3199f94656eb9/b93bfb1fea0e2424-5a/s500x750/4b048089a72c1fa236599345324129d6de3c7b56.gifv)![App Screenshot](https://64.media.tumblr.com/fa876df6a151b65268d3199f94656eb9/b93bfb1fea0e2424-5a/s500x750/4b048089a72c1fa236599345324129d6de3c7b56.gifv)
   ‎                                                                                                                                                                                                                      
                 ‎   ⊰ ˙  ‎ ☘ .  ‎ She / her , They / them , Candy / bird . Pronouns ! (mainly she / her)
      ‎      🌱 . 4 / 13 
