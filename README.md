@@ -13,6 +13,3 @@
 
 ![App Screenshot](https://64.media.tumblr.com/845a4672f4fa30a0d788bb5e7a5ee075/9e50215eb404bc61-4e/s2048x3072/1f2a421a43bb586db131d4aca75d71982c2f4655.pnj)
  
-
-![App PNG](https://i.pinimg.com/564x/03/06/c8/0306c8b3d1562ab6ffc2f2d886298cf0.jpg)
-![Logo](https://i.pinimg.com/564x/d4/82/c7/d482c77ec34f1ebdfad4169ea8b697a0.jpg)
