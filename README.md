@@ -1,4 +1,4 @@
-[![Previews]
+
 
 ## 🎤 . Host Speaking !! :3
 
