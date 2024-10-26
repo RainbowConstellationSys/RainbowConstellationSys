@@ -14,4 +14,4 @@
 ![App Screenshot](https://64.media.tumblr.com/845a4672f4fa30a0d788bb5e7a5ee075/9e50215eb404bc61-4e/s2048x3072/1f2a421a43bb586db131d4aca75d71982c2f4655.pnj)
  
 
-![App Screenshot](https://i.pinimg.com/564x/b2/bd/a9/b2bda9beb8456fe14ab67186942f61ea.jpg)
+![App PNG](https://i.pinimg.com/564x/b2/bd/a9/b2bda9beb8456fe14ab67186942f61ea.jpg)
