@@ -2,7 +2,7 @@
 
 ## 🎤 . Host Speaking !! :3
 
-![GIF](https://i.pinimg.com/originals/24/b6/0e/24b60e602667782f500542a030e22a0d.gif)
+![App Screenshot](https://i.pinimg.com/originals/c5/2b/31/c52b31b4b3b743383a7a50e6c352b7a5.png)
 
 ![App Screenshot](https://64.media.tumblr.com/9f7a24fa5069b44c560c975d85c66847/9e50215eb404bc61-4f/s2048x3072/83ae654d3a8f3220ddd29d87854c7911e82e1dc9.pnj)
   ‎                                                                                                                                                                                                                      
