@@ -11,7 +11,7 @@
     
    🖤 . This account is actually for my system alters, but they don't really use it so i'm mainly online in this account, co-host also use this too !!
 
-💜 . Check out our [Carrd](https://rainbowconstellationsys.carrd.co) to know more about my alters , and co-host ! , and also check out host's [Carrd](https://sillysintromelaniethemed.carrd.co) ! , feel free to int ! i/we don't bite, but i/we may be awkward if you approach me/us and don't have the same rumor as me/us !! but if you do, i/we will still take time to be comf around you ! 
+💜 . Feel free to int ! i/we don't bite, but i/we may be awkward if you approach me/us and don't have the same rumor as me/us !! but if you do, i/we will still take time to be comf around you ! 
 
 ⚠️ . Might be sometime's HYPERactive, especially our pinkie pie alter!, so we apologize if we're being annoying/forceful. Some of our alter's are rude/mean too! but don't take them too seriously, just play it cool, they're just testing if you and them are going to get along well. Ask if someone's fronting if i'm, out of tone/not how i usually talk, because there's a posibility that someone's fronting!
 
