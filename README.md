@@ -11,7 +11,7 @@
 
 🌈 . Feel free to int ! i/we don't bite, but i/we may be awkward if you approach me/us and don't have the same rumor as me/us !! but if you do, i/we will still take time to be comf around you ! 
 
-⚠️ . Might be sometime's HYPERactive, especially our pinkie pie alter!, so we apologize if we're being annoying/forceful. Some of our alter's are rude/mean too! but don't take them too seriously, just play it cool, they're just testing if you and them are going to get along well. Ask if someone's fronting if i'm, out of tone/not how i usually talk, because there's a posibility that someone's fronting!
+⚠️ . Might be sometime's HYPERactive, especially our pinkie pie alter!, so we apologize if we're being annoying/forceful. Some of our alter's are rude/mean too! but don't take them too seriously, just play it cool, they're just testing if you and them are going to get along well. 
 
 ![App Screenshot](https://64.media.tumblr.com/20ed731502510bb3d92e5f5fbcc8f0ce/cd75fb9d678138f9-41/s640x960/7b9ae112d0ca8d7747323592a8d0ffaa67ed867e.pnj)
  
